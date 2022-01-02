@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PolyCatsNetwork
-- 👀 I’m interested in ...the Polygon netwoek
+- 👀 I’m interested in ...the Polygon network
 - 🌱 I’m currently learning ...How to be the next big meme token
 - 💞️ I’m looking to collaborate on ... PolyCats
 - 📫 How to reach me ... t.me/polycats
